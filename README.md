@@ -2,7 +2,7 @@ An examination of the culture and psychology of institutional self worship in th
 
 By Brian Laposa
 
-Website: https://n7muq22th44qe.kimi.page
+Website: https://v0-silence.vercel.app/
 
 DOCS: https://docs.google.com/document/d/1B7bi1h2z-dR12JzJKbYOXGDUyRLjoRHT/edit?usp=drivesdk&ouid=103249518831320869277&rtpof=true&sd=true
 
