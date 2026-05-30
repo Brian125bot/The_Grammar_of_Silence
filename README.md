@@ -1,4 +1,4 @@
-A review of the culture and psychology of self worship in the Roman Catholic Church.
+An examination of the culture and psychology of self worship in the Roman Catholic Church. To answer the perplexing question, is the Eucharist the Source and Summit of the Catholic Church, as is claimed, or a theological prop at the service of the Clerical Hierarchy and Authority. 
 
 By Brian Laposa
 
