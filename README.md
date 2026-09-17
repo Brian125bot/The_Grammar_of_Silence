@@ -3,5 +3,5 @@ An examination of the culture and psychology of institutional self worship in la
 By Brian Laposa (2025)
 
 
-DOCS: https://docs.google.com/document/d/1B7bi1h2z-dR12JzJKbYOXGDUyRLjoRHT/edit?usp=drivesdk&ouid=103249518831320869277&rtpof=true&sd=true
+https://docs.google.com/document/d/1JmZpweFimT_-5fBxbPG1U55e97TiTdim/edit?usp=drivesdk&ouid=103249518831320869277&rtpof=true&sd=true
 
