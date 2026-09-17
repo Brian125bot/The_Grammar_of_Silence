@@ -1,6 +1,6 @@
-An examination of the culture and psychology of institutional self worship in the Roman Catholic Church. To answer the perplexing question: is the Eucharist the Source and Summit of the Catholic Church or a theological prop at the service of the clerical authority. 
+An examination of the culture and psychology of institutional self worship in large religious institutions. An exploration of the difference the flavor of religious practice of the clergy vs the laity and the vast gap in their beliefs. This publication also seeks to determine the true "source of summit" of religious practice in Roman Catholicism and resolve whether it is dogma or institutional power...
 
-By Brian Laposa
+By Brian Laposa (2025)
 
 Website: https://v0-silence.vercel.app/
 
